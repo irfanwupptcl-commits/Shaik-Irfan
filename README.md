@@ -1,2 +1,0 @@
-# Shaik-Irfan
-Personal Porfolio
